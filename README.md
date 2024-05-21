@@ -1,1 +1,1 @@
-Jamie Foxx received critical acclaim for his portrayal of musician Ray Charles in "Ray" (2004), winning the Academy Award for Best Actor.
+"La La Land" (2016) famously had its Best Picture win mistakenly announced at the Oscars, only for "Moonlight" to be revealed as the actual winner.
