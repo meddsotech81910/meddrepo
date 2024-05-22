@@ -1,1 +1,1 @@
-"La La Land" (2016) famously had its Best Picture win mistakenly announced at the Oscars, only for "Moonlight" to be revealed as the actual winner.
+"Game of Thrones" won the Primetime Emmy Award for Outstanding Drama Series four times, in 2015, 2016, 2018, and 2019.
