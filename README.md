@@ -1,1 +1,1 @@
-"Game of Thrones" won the Primetime Emmy Award for Outstanding Drama Series four times, in 2015, 2016, 2018, and 2019.
+"Moonlight" (2016) made history as the first LGBTQ+ film and the first film with an all-black cast to win the Academy Award for Best Picture.
