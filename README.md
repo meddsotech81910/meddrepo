@@ -1,1 +1,1 @@
-"Moonlight" (2016) made history as the first LGBTQ+ film and the first film with an all-black cast to win the Academy Award for Best Picture.
+Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
