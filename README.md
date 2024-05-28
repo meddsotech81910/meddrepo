@@ -1,1 +1,1 @@
-Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
+The show is known for its morally ambiguous characters and willingness to subvert traditional fantasy tropes.
