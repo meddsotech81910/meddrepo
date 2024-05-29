@@ -1,1 +1,1 @@
-The show is known for its morally ambiguous characters and willingness to subvert traditional fantasy tropes.
+"City of God" (2002), a Brazilian crime drama directed by Fernando Meirelles, garnered critical praise for its gritty portrayal of life in the slums of Rio de Janeiro.
