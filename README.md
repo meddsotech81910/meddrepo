@@ -1,1 +1,1 @@
-Cersei Lannister, portrayed by Lena Headey, is one of the most complex and compelling antagonists in the show, known for her ruthless pursuit of power.
+Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
