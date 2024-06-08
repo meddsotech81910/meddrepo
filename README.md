@@ -1,1 +1,1 @@
-The Red Wedding, depicted in the episode "The Rains of Castamere," is one of the most shocking and memorable events in the series.
+"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
