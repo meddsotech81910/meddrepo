@@ -1,1 +1,1 @@
-"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
+The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
