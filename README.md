@@ -1,1 +1,1 @@
-The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
+The prequel series "House of the Dragon," focusing on the Targaryen dynasty, is set to premiere in the near future.
