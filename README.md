@@ -1,1 +1,1 @@
-The prequel series "House of the Dragon," focusing on the Targaryen dynasty, is set to premiere in the near future.
+"Frozen" (2013) subverted traditional Disney princess tropes with its focus on sisterly love and independence, resonating with audiences of all ages.
