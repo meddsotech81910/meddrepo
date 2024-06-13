@@ -1,1 +1,1 @@
-"Frozen" (2013) subverted traditional Disney princess tropes with its focus on sisterly love and independence, resonating with audiences of all ages.
+The horror genre saw a resurgence with films like "The Sixth Sense" (1999) and "The Blair Witch Project" (1999), paving the way for hits like "Saw" (2004) and "The Ring" (2002).
