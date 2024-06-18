@@ -1,1 +1,1 @@
-The Red Wedding, depicted in the episode "The Rains of Castamere," is one of the most shocking and memorable events in the series.
+Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
