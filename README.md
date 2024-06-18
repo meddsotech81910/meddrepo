@@ -1,1 +1,1 @@
-The phrase "winter is coming" became a popular catchphrase, symbolizing impending danger or change.
+The Red Wedding, depicted in the episode "The Rains of Castamere," is one of the most shocking and memorable events in the series.
