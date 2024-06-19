@@ -1,1 +1,1 @@
-Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
+"Crouching Tiger, Hidden Dragon" (2000), directed by Ang Lee, became a global sensation, blending martial arts action with poignant drama and winning four Academy Awards.
