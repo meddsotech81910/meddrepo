@@ -1,1 +1,1 @@
-"Crouching Tiger, Hidden Dragon" (2000), directed by Ang Lee, became a global sensation, blending martial arts action with poignant drama and winning four Academy Awards.
+Peter Dinklage, who portrayed Tyrion Lannister, won four Primetime Emmy Awards for his performance.
