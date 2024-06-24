@@ -1,1 +1,1 @@
-Peter Dinklage, who portrayed Tyrion Lannister, won four Primetime Emmy Awards for his performance.
+The series has inspired tourism to filming locations, such as Dubrovnik, Croatia, which served as the backdrop for King's Landing.
