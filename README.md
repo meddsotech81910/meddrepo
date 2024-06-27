@@ -1,1 +1,1 @@
-The series has inspired tourism to filming locations, such as Dubrovnik, Croatia, which served as the backdrop for King's Landing.
+"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
