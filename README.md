@@ -1,1 +1,1 @@
-"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
+Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
