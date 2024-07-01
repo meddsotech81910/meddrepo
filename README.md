@@ -1,1 +1,1 @@
-Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
+"Fahrenheit 9/11" (2004), directed by Michael Moore, became the highest-grossing documentary of all time and sparked debate over its political content.
