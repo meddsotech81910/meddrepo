@@ -1,1 +1,1 @@
-"City of God" (2002), a Brazilian crime drama directed by Fernando Meirelles, garnered critical praise for its gritty portrayal of life in the slums of Rio de Janeiro.
+Jamie Foxx received critical acclaim for his portrayal of musician Ray Charles in "Ray" (2004), winning the Academy Award for Best Actor.
