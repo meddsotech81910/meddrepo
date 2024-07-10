@@ -1,1 +1,1 @@
-The prequel series "House of the Dragon," focusing on the Targaryen dynasty, is set to premiere in the near future.
+"Spirited Away" (2001), directed by Hayao Miyazaki, became the first non-English language film to win the Academy Award for Best Animated Feature.
