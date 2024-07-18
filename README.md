@@ -1,1 +1,1 @@
-Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
+"Pan's Labyrinth" (2006), directed by Guillermo del Toro, blended fantasy and historical drama to create a visually stunning and emotionally resonant film.
