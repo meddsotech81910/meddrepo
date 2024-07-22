@@ -1,1 +1,1 @@
-"Pan's Labyrinth" (2006), directed by Guillermo del Toro, blended fantasy and historical drama to create a visually stunning and emotionally resonant film.
+"The Dark Knight" (2008), directed by Christopher Nolan, redefined the superhero genre and earned Heath Ledger a posthumous Oscar for his portrayal of the Joker.
