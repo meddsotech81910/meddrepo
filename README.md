@@ -1,1 +1,1 @@
-The phrase "winter is coming" became a popular catchphrase, symbolizing impending danger or change.
+The show was filmed in various locations, including Northern Ireland, Croatia, Spain, and Iceland.
