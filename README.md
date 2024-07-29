@@ -1,1 +1,1 @@
-Pixar Animation Studios dominated the decade with hits like "Finding Nemo" (2003), "The Incredibles" (2004), and "Up" (2009), showcasing groundbreaking animation and storytelling.
+The success of films like "Love, Simon" (2018) and "Call Me by Your Name" (2017) highlighted the demand for LGBTQ+ stories and characters in mainstream cinema.
