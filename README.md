@@ -1,1 +1,1 @@
-The success of films like "Love, Simon" (2018) and "Call Me by Your Name" (2017) highlighted the demand for LGBTQ+ stories and characters in mainstream cinema.
+"Fahrenheit 9/11" (2004), directed by Michael Moore, became the highest-grossing documentary of all time and sparked debate over its political content.
