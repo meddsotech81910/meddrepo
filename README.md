@@ -1,1 +1,1 @@
-"Fahrenheit 9/11" (2004), directed by Michael Moore, became the highest-grossing documentary of all time and sparked debate over its political content.
+The "Harry Potter" film series, based on J.K. Rowling's novels, debuted in 2001 with "Harry Potter and the Sorcerer's Stone."
