@@ -1,1 +1,1 @@
-The "Harry Potter" film series, based on J.K. Rowling's novels, debuted in 2001 with "Harry Potter and the Sorcerer's Stone."
+The success of "The Bourne Identity" (2002) revitalized the spy thriller genre, leading to sequels and imitators throughout the decade.
