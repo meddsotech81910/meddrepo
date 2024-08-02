@@ -1,1 +1,1 @@
-The success of "The Bourne Identity" (2002) revitalized the spy thriller genre, leading to sequels and imitators throughout the decade.
+Greta Gerwig's "Lady Bird" (2017) received widespread acclaim but faced criticism for its lack of recognition in major Oscar categories like Best Director.
